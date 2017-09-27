@@ -1,0 +1,1 @@
+# Mathematical-Pattern-Recognition-Project
